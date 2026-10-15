@@ -1,2 +1,2 @@
 # pider-parker
-Здесь будет описание того что Алиска местная простиУТОЧКА шлЮщчка и лесбушечка мяу 
+Tut budet  napisano kakoi Zenja pider parker!!!!!!
